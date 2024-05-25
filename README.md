@@ -9,4 +9,4 @@
 
 \. [`twt`](https://twitter.com/modwtf)
 
-\. [`stm`](https://steamcommunity.com/id/-crimson/)
+\. [`stm`](https://steamcommunity.com/id/modwtf/)
